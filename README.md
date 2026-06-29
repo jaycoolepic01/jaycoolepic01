@@ -3,6 +3,8 @@
 
 Hello! I am Jay!
 
+Im a guy, I'd prefer if you used he/him/his with me, thank you.
+
 I like to hangout with my friends I am underage so if you are not underage maybe dont talk to me ok!
 
 I like to make friends and don't be shy to come up to me!
