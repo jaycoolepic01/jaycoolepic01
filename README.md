@@ -1,7 +1,9 @@
-<img src="https://i.ibb.co/5hNGKYzR/george-michael-wham.gif" alt="george michael wham" border="0">
+<img src="https://i.ibb.co/ZRKzTX17/pony-town-mango-is-bird-ok-dance-move-1-blinking-padded-4x.gif" alt="pony town mango is bird ok dance move 1 blinking padded 4x" border="0">
 
 
 Hello! I am Jay!
+
+<img src="https://i.ibb.co/5hNGKYzR/george-michael-wham.gif" alt="george michael wham" border="0">
 
 Im a guy, I'd prefer if you used he/him/his with me, thank you.
 
