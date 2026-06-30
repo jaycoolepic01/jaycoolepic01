@@ -1,5 +1,3 @@
-<img src="https://i.ibb.co/ZRKzTX17/pony-town-mango-is-bird-ok-dance-move-1-blinking-padded-4x.gif" alt="pony town mango is bird ok dance move 1 blinking padded 4x" border="0">
-
 
 Hello! I am Jay!
 
