@@ -6,11 +6,11 @@ Hello! I am Jay!
 Im a guy, I'd prefer if you used he/him/his with me, thank you.
 
 I like to hangout with my friends I am underage so if you are not underage maybe dont talk to me ok!
-
-I like to make friends and don't be shy to come up to me!
+(also like to make friends and don't be shy to come up to me!)
 
 unless you are bad! ok
 
-<img src="https://i.ibb.co/6RDZDBry/image0.gif" alt="image0" border="0">
-
 youre not a good person if you think copying peoples creative stuff is good! dont be like that, change yourself for others and mostly yourself.
+
+
+<img src="https://i.ibb.co/6RDZDBry/image0.gif" alt="image0" border="0">
