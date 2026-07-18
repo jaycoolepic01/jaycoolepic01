@@ -1,7 +1,7 @@
 
 hello! i am Jay!
 
-<img src="https://i.ibb.co/5hNGKYzR/george-michael-wham.gif" alt="george michael wham" border="0">
+<img src="https://i.ibb.co/Xx1Qc4df/200.gif" alt="200" border="0">
 
 im a guy, i would love it and prefer if you used he/him/his with me, thank you.
 dont be shy to talk to me, im chill... i think!
