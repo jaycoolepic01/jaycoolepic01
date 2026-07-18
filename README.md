@@ -1,16 +1,14 @@
 
-Hello! I am Jay!
+hello! i am Jay!
 
 <img src="https://i.ibb.co/5hNGKYzR/george-michael-wham.gif" alt="george michael wham" border="0">
 
-Im a guy, I'd prefer if you used he/him/his with me, thank you.
-
-I like to hangout with my friends I am underage so if you are really old dont talk to me ok!
-(also like to make friends and don't be shy to come up to me!)
-
-unless you are bad! ok
-
-youre not a good person if you think copying peoples creative stuff is good! dont be like that, change yourself for others and mostly yourself.
-
+im a guy, i would love it and prefer if you used he/him/his with me, thank you.
+dont be shy to talk to me, im chill... i think!
+i love my strawpage please check it out if you have the time!
+im a fan of a lot of things, i like to draw a bit and talk to my friends.
+music is nice! my music consits of george michael, wham!, pet shop boys, type o negative, a bit of kmfdm and also a bit of lemon demon. 
 
 <img src="https://i.ibb.co/6RDZDBry/image0.gif" alt="image0" border="0">
+
+just a small about me!
