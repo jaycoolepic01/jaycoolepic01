@@ -3,3 +3,6 @@
 hello! i am Jay!
 
 <img src="https://i.ibb.co/rRL07qtv/sonic.gif" alt="sonic" border="0">
+
+https://jaycoolepic.atabook.org/
+https://jaycoolepic.straw.page
